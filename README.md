@@ -1,1 +1,0 @@
-# rikerthomas.github.io
